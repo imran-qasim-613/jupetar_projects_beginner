@@ -1,0 +1,1 @@
+# jupetar_projects_beginner
